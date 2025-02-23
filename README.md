@@ -1,1 +1,1 @@
-boot animations of google tv :D
+boot animation of google tv :D
